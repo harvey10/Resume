@@ -12,19 +12,20 @@ Computer Science student with experience leading others, following orders, and t
 US Army
 
 Mar 2012 - Jan 2015
-
 Fort Bragg, NC
 
-Infantryman
+*Infantryman*
 
 * Attended advanced schools: Special Operations Combat Medic Course, Special Forces Assessment and Selection, Army Airborne School, Warrior Leaders Course, Fort Bragg Unit Armorer School.
 * Supervised six personnel to maintain and account for more than $6M of sensitive military equipment in a rapidly changing environment.
 * Led and instructed a team of four personnel in various tasks including maintenance of equipment, land navigation, basic communication functions, and first aid.
 
-University Medical Center of Southern Nevada     
+University Medical Center of Southern Nevada   
+
 Aug 2008 - Jun 2011
 Las Vegas, NV
-Office Assistant
+
+*Office Assistant*
 
 * Utilized Microsoft Office, Excel, and various other programs to keep track of over $100M in invididual accounts.
 * Handled, sorted, and filed mail containing sensitive medical information.
